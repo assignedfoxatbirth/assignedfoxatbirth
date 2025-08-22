@@ -1,11 +1,14 @@
 ⏖  **CHAR** <sup>or judas</sup>  she/hx & they/it  <sup>18</sup>  
 christian anglican&**native canadian**   
-genderqueer t**mascfem**&abrosexual    
+genderqueer t**mascfem**&abrosexual   
+(vesti)**objectum**&fictoromantic&**qp**  
 ⏖ **no dni :  hide/block freely** !! W2I pls
 
 >  HI I am Char and I like friends&gifs . I am currently finishing high school after dropping out for 2 years&then planning to go to college/seminary for religious studies ! IRL Fox <sub>I don't personally call it therianthropy, but I suppose that term is close enough to what I feel </sub> I am very friendly please talk to me... I live in whimsyland and I love to go to friendtown. My Discord is @ assignedfoxatbirth & most of my other socials are @ AFOXAB
 
 > **INTS** <ins>Arachnids&Invertabrates</ins>- Trauma Psychology (Disorders&Paraphilias) - Forensics (Medical&Digital) - True Crime (Psychological Standpoint) - Piracy&Torrenting - Malwares&Computers - Hiddenweb Browsing - Bones&Taxidermy - <ins>Red foxes</ins> // <ins>Steven Universe</ins> - MLP - StarVSTheForcesofEvil - <ins>Homestuck</ins> - Minecraft - Stardew Valley - ROBLOX - 8:11 - IHNMAIMS - Mouthwashing - OHSHC - Hetalia - Postal1&2 - Human Centipede - Dexter - The Magnus Archives // https://open.spotify.com/user/316n6a7kgf62gmvup5bnsdfcnkke?si=ROWPXt_aSESrtHAdkfPUtQ
+
+![](https://i.imgur.com/WYxPUv8.png) ![](https://i.imgur.com/nbZE1po.png) ![](https://i.imgur.com/1vAtYxM.png) ![](https://i.imgur.com/Uzs8jxn.png) ![](https://i.imgur.com/VDqpTLf.png) ![](https://i.imgur.com/eswSnrS.png) ![](https://i.imgur.com/Z5zDTPg.png) ![](https://i.imgur.com/5iXiC8z.png) ![](https://i.imgur.com/o7ZCFYm.png) ![](https://i.imgur.com/u6ZPWxO.png) ![](https://i.imgur.com/7de9hyf.png) ![](https://i.imgur.com/Y7MOfeL.png) ![](https://i.imgur.com/Z33buiu.png) ![](https://i.imgur.com/BZnhUNi.png) ![](https://i.imgur.com/HxL61bT.png) ![](https://i.imgur.com/rI18gRz.png) ![](https://i.imgur.com/wh3Tiip.png) ![](https://i.imgur.com/N6nHS6s.png) ![](https://i.imgur.com/lSkSEUZ.png) ![](https://i.imgur.com/0cDbzXB.png) ![](https://i.imgur.com/AmWtsbY.png) ![](https://i.imgur.com/lB92wkt.png) ![](https://i.imgur.com/LGvol4P.png) ![](https://i.imgur.com/PlxuTTv.gif) ![](https://i.imgur.com/uOsoNEC.png) ![](https://i.imgur.com/4SVfFPD.png) ![](https://i.imgur.com/k3PfQGk.png) ![](https://i.imgur.com/r8v91MH.png) ![](https://i.imgur.com/8GgdVkW.png) ![](https://i.imgur.com/YIgeGTo.png) ![](https://i.imgur.com/Nl7xQPH.png) ![](https://i.imgur.com/qlJ9D71.png) ![](https://i.imgur.com/fGAMFvP.png) ![](https://i.imgur.com/iJZWqi6.png) ![](https://i.imgur.com/FBhgews.png) ![](https://i.imgur.com/k9Rf9aq.png) ![](https://i.imgur.com/sENlW4s.png) ![](https://i.imgur.com/JhQiChJ.png) ![](https://i.imgur.com/KLFk3KG.png)
 
 ---
 ![](https://64.media.tumblr.com/89b3f07f159521bec5341a6894f9ef49/31b077c47cd92dea-3d/s75x75_c1/7b4b33af4b2b49a36196dd0261c2b77d2b7f8528.pnj)
